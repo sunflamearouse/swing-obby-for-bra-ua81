@@ -1,4 +1,4 @@
-
+advanced Script for enter brainrot heads is the best enter brainrot heads Script, featuring undetectable and instant win. Safe and powerful for all
 
 
 
